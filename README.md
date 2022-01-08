@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Iouliya
 - 👀 I’m interested in health, art, life
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on preventage medicine
+- 💞️ I’m looking to collaborate on preventage medicine, event management, education of all kinds
 - 📫 How to reach me ...
 
 <!---
